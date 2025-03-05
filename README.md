@@ -6,7 +6,7 @@
 3. Injoy :exclamation:
 
 ## :hammer_and_wrench: Seolmyeong
-![Kinder Garden](https://github.com/user-attachments/assets/950cd81f-4f61-40d9-a853-b5d313b8ed05)
+![Kinder Garden](https://github.com/user-attachments/assets/0c283b30-5871-4d1a-9fd2-edf04e0174da)
 PAWSTECH Kinder Garden Diree
 
 Rekted PAWSTECHIAN's Brein
